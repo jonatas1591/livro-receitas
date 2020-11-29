@@ -14,9 +14,9 @@ Ingredientes
 
 
 Modo de Preparo
-1. O preparo desta receita de estrogonofe de frango com palmito começa cortando o peito de frango sem osso em cubos. Esta parte do processo você pode pedir já ao seu açougueiro. Assim, o preparo fica mais prático e fácil, caso você não tenha muita habilidade com cortes. Tempere o frango com alho, sal e pimenta (nós fazemos um tempero batido no pilão). Depois, reserve o frango por alguns minutos para absorver o tempero.
+1. Corte o peito de frango sem osso em cubos.  Tempere o frango com alho, sal e pimenta. Depois, reserve o frango por alguns minutos para absorver o tempero.
 
-2. Na sequência, coloque um fio de óleo ou azeite em uma panela grande e alta, acrescente o frango e deixe cozinhar bem. Lembre-se de tampar a panela e mexer esporadicamente.  Quando o frango já estiver bem cozido, faltando apenas dourar,  acrescente a cebola picada e a pimenta de cheiro. Assim, ele vai ficar bem gostoso e a receita perfumada. Acrescente o molho de tomate (700g) e meia medida de água. Deixe ferver.
+2. Coloque um fio de óleo ou azeite em uma panela grande e alta, acrescente o frango e deixe cozinhar bem. Lembre-se de tampar a panela e mexer esporadicamente.  Quando o frango já estiver bem cozido, faltando apenas dourar,  acrescente a cebola picada e a pimenta de cheiro. Assim, ele vai ficar bem gostoso e a receita perfumada. Acrescente o molho de tomate (700g) e meia medida de água. Deixe ferver.
 
 3. Por fim, é hora de colocar o creme de leite e misturar bem. Adicione os palmitos e, mais uma vez, deixe ferver. Desligue o fogo da panela e coloque o cheiro verde. Pronto. Arroz branco e batata palha são os acompanhamentos tradicionais de um bom estrogonofe
 
